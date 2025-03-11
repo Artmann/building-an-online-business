@@ -6,6 +6,7 @@
 - 🧵 [How to rank on Product Hunt](https://x.com/tibo_maker/status/1803408153255584244)
 - 🧵 [I've always wanted a definitive guide on how to successfully launch on @ProductHunt](https://x.com/lennysan/status/1765083415383298367)
 - 📝 [Growth: Thinking in systems](https://kamrn.com/blog/growth-thinking-in-systems/ )
+- 🧵 [List of subreddits to launch in](https://x.com/mikestrives/status/1899134234016571582)
 
 ### Landing Pages
 
