@@ -10,7 +10,7 @@
 ### Landing Pages
 
 - 🧵[This landing page structure made us $250,000](https://x.com/DanKulkov/status/1805276953848467917)
-
+- 🧵[How to write great headings, sub headings, hooks and CTAs](https://x.com/namyakhann/status/1848367873422467420/)
 
 ### Paid Advertisment
 
